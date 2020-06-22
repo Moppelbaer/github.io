@@ -10,4 +10,8 @@ in den 007 Filmen.
 * Zigarren raucher
 
 
+Connery sagt:
+
+> Einmal Schotte immer Schotte
+> Frauen, Whiskey, Zigarren... was will man mehr
 
